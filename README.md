@@ -1,6 +1,6 @@
 ## Hello guys 👋 Welcome to my GitHub profile 😄
 
-### My name's Lucas Freire, I'm 18 years old and I'm studying Information Systems 📚
+### My name's Lucas Freire, I'm 18 years old and studying Information Systems 📚
 
 <br>
 
